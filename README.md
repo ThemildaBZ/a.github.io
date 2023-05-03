@@ -1,1 +1,0 @@
-# pargenyal.github.io
